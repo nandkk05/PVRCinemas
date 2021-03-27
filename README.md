@@ -11,4 +11,3 @@ Enjoy ! 😎👍
 
 if you have any queries than ask me on my twitter account https://twitter.com/nandkk05 or directly mail me...
 
-Help me to buy a cup of coffee - https://www.paypal.me/nandkk05
